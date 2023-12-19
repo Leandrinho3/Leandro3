@@ -7,4 +7,4 @@
 - 👯 Estou procurando me deidcar ao máximo, pois estou tentando uma transição de carreira...
 - 🤔 Estou procurando sempre estar atualizado no mercado, nos estudos onde possa estar pronto as oportunidades que possa aparecer no momento oportuno..
 
-   Meu contato no linkedin é: https://www.linkedin.com/in/leandro-de-souza-neves/
+   Meu contato no linkedin é : https://www.linkedin.com/in/leandro-de-souza-neves/
